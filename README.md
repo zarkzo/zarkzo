@@ -20,6 +20,6 @@ Saya memiliki minat dalam:
 ## 📫 Hubungi Saya  
 Jika kamu ingin berdiskusi atau berkolaborasi, silakan hubungi saya di:  
 - 🔗 [LinkedIn](linkedin.com/in/putra-faaris-prayoga/)   
-- ✉️ Email: putrafaariz47@gmail.com  
+- ✉️ [Email](putrafaariz47@gmail.com)  
 
 Terima kasih telah mampir! 🚀  
